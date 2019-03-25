@@ -1,1 +1,1 @@
-Creating a new branch is quick and simple.
+Just like a star in the sky.
